@@ -10,4 +10,8 @@ Steven Grant se décide à dépasser les craintes des villageois. Il traversa un
 
 Il se pencha vers l'eau, malheureusement il ne s'attendait a se faire attiré vers l'étang. Il essayé de se liberé de toutes les façons qu'il avait sous la main. Sa massue est tombée quand la créature lui a attrapée la cheville. Alors, il bouge dans tous les sens, et se met à murmuré. La créature était interloquée de ce qu'il disait alors le lacha. Jean-Eude réussi a ne pas tombé dans l'eau de l'étang...
 
+C'est alors que la créature sorti de son étang pour poursuivre Jean-Eude, elle était aussi à l'aise sur la terre que sur l'eau.
+Jean-Eude effrayait, coura jusqu'auvillage pour demander de l'aide afin de se débarraser de la créature. Quand tout à coup un druide sorti du village pour lancer
+un sort sur la créature, celle-ci devint ... 
+
 -> a toi
